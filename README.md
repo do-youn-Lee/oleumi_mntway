@@ -4,4 +4,4 @@
 <br>491100101 고내봉<br><br><br>
 
 ![491100103_w600_lowsize](https://user-images.githubusercontent.com/28820470/231744849-c049abcb-1cf6-4dfb-956e-b57df30ac9d2.png)
-<br>481100103 활오름<br><br><br>
+<br>491100103 활오름<br><br><br>
