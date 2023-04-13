@@ -27,9 +27,6 @@
 ![491100401_w600_lowsize](https://user-images.githubusercontent.com/28820470/231766079-2d49dd7b-0e8a-4164-8628-748a971ae353.png)
 <br>491100401<br><br><br>
 
-![491100403_w600_lowsize](https://user-images.githubusercontent.com/28820470/231766117-838a90ed-e42f-4175-8b87-df256cb0bfe4.png)
-<br>491100403<br><br><br>
-
 ![491100404_w600_lowsize](https://user-images.githubusercontent.com/28820470/231766135-49c52bb2-a2ee-4d73-b71f-1f64706103a8.png)
 <br>491100404<br><br><br>
 
