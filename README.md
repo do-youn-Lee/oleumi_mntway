@@ -519,9 +519,6 @@
 ![491302604_w600_lowsize](https://user-images.githubusercontent.com/28820470/232323805-3cf95187-7ae9-4a82-91e8-41478603dd5a.png)
 <br>491302604<br><br><br>
 
-![491302704_w600_lowsize](https://user-images.githubusercontent.com/28820470/232323806-372c39e8-13ba-41a4-9136-29149768d765.png)
-<br>491302704<br><br><br>
-
 ![491302804_w600_lowsize](https://user-images.githubusercontent.com/28820470/232323807-fc908e4d-d6b4-4ef1-b182-f1d894fddd34.png)
 <br>491302804<br><br><br>
 
